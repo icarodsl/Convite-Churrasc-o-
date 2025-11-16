@@ -1,2 +1,2 @@
-# Convite-Churrasc-o-
+# Convite-Churrascão
 Promoção CB Ícaro Lima
